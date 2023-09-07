@@ -4,6 +4,6 @@
 - ☕  Loves coffee
 - 🐶 And dogs
 
-check out my previous projects www.sarahschoener.com
+Check out my previous projects www.sarahschoener.com
 
 
